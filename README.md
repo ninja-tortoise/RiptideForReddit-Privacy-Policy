@@ -1,4 +1,4 @@
-# RiptideForReddit-Privacy-Policy
+# Riptide For Reddit - Privacy Policy
 
 ## Privacy Policy
 
